@@ -1,0 +1,1 @@
+# CCT-Strategic_Thinking
